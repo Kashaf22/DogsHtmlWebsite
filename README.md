@@ -8,5 +8,5 @@ Time Spent : 1 hour in total
 
 ## Video Walkthrough 
 
-https://imgur.com/a/bFv5nVY
+https://imgur.com/a/bFv5nVY.gif
 
